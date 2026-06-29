@@ -1,4 +1,4 @@
-
+blox fruits Script smart is the best blox fruits Script, featuring teleport and anti-ban. Safe and powerful for all your needs.
 
 
 
